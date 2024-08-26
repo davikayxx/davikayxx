@@ -2,7 +2,7 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on an application
-- 📫 Here's my email its.jimmy.xx@gmail.com
+- 📫 Here's my email babyboy@gmail.com
 - 😄 Pronouns: Boii...⛹🏿‍♂️
 - ⚡ Fun fact: 🤔 don't have one
 
